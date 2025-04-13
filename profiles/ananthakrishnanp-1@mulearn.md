@@ -2,7 +2,7 @@
 
 ### About Me
 
->I love technology and have a strong desire to comprehend how things operate. I like to experiment with computers, devices, and systems, and I'm constantly interested in how technology works. I enjoy the challenge and excitement that technology offers, whether it's problem-solving, learning new tools, or trying out concepts.
+I love technology and have a strong desire to comprehend how things operate. I like to experiment with computers, devices, and systems, and I'm constantly interested in how technology works. I enjoy the challenge and excitement that technology offers, whether it's problem-solving, learning new tools, or trying out concepts.
 
 In addition, I'm a creative thinker who likes to design and draw. Particularly while working on technological problems, my inventiveness enables me to think creatively and come up with original ideas. I think true innovation results from fusing technical know-how with creativity.
 
